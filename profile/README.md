@@ -9,6 +9,6 @@
 - [Authors of The Sports Coach Website Strategy Guide](https://perstarke-webdev.de/the-sports-coach-website-strategy-guide)
 
 ## Built with Purpose. Backed with Structure. Delivered with Heart.  
-- +40 Finished website projects across various industries
+- +40 Finished website projects across various industries in Europe, Australia & U.S.
 - 5★ In all of our Google reviews since our founding in 2022
 - 100% Satisfaction guarantee - that’s how much we care about your success
