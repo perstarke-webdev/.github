@@ -20,3 +20,14 @@ your real goals.**
 - +45 Finished website projects across various industries in Europe, Australia & U.S.
 - 5★ In all of our Google reviews since our founding in 2022
 - 100% Satisfaction guarantee - that’s how much we care about your success
+
+## Real Excellence is Never Built Alone
+
+**We grow through clarity, collaboration, and trusted partnerships.**
+
+- [Kröner & Starke – Strategic Web & Business Collaboration](http://kroener-starke.ch/)
+- [Trang Nguyen – Design & Brand Experience Partner](https://www.tra-ng.de/)
+- Bold Digital Consulting – Digital Strategy & Growth Partner
+- [Niels Fraemke – Brand Strategy & Positioning](https://www.nielsfraemke.com/)
+
+We work with a carefully selected network of developers, designers, and digital experts – all aligned with one goal: building websites that move your business forward.
