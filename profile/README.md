@@ -17,7 +17,7 @@ your real goals.**
 - [Managing the Growing Collection "The Science Behind High-Performing Websites"](https://perstarke-webdev.de/blog/the-science-behind-highperforming-websites)
 
 ## Built with Purpose. Backed with Structure. Delivered with Heart.  
-- +45 Finished website projects across various industries in Europe, Australia & U.S.
+- +50 Finished website projects across various industries in Europe, Australia & U.S.
 - 5★ In all of our Google reviews since our founding in 2022
 - 100% Satisfaction guarantee - that’s how much we care about your success
 
