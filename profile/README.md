@@ -4,7 +4,7 @@
 your real goals.**
 
 - [Your Trusted Web Development Partner](https://perstarke-webdev.de/)
-- [Our Founder Per Starke: World Explorer, Skydiver, Competitive Athlete](https://www.instagram.com/per.starke/)
+- [Our Founder Per Starke: World Explorer, Skydiver, Competitive Athlete](https://perstarke-webdev.com/)
 - [Meet the Team: Personal Partnerships, Built on Collaboration](https://perstarke-webdev.de/about-us)
 - [PSWD Projects: Meet Our Happy Clients](https://perstarke-webdev.de/project)
 - [Creators of the ACP42 Website Strategy Framework](https://perstarke-webdev.de/aim-create-promote-framework)
