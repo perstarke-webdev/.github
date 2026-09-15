@@ -1,4 +1,4 @@
-Web design nobody forgets | KSWD
+Web design no one ever forgets | Kröner & Starke
 
 * [Your Trusted Web Development Partner](https://kroener-starke.ch/)
 * [Meet Simon & Per: Personal Partnerships, Built on Collaboration](https://kroener-starke.ch/ueber-uns/)
