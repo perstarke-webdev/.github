@@ -15,6 +15,6 @@ Web design no one ever forgets | Kröner & Starke
 
 Built with Purpose. Backed with Structure. Delivered with Heart.
 
-* +70 Finished website projects across various industries in Europe, Australia & U.S.
+* +100 Website projects across various industries in Europe, Australia & U.S.
 * 5★ In all of our Google reviews since our founding in 2022
 * 100% Satisfaction guarantee - that's how much we care about your success
